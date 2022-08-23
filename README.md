@@ -18,4 +18,4 @@ You can see the following links:
 
 Feel free to fork and contribute to this repo.
 
-Hit me up on [Linkedin](https://www.linkedin.com/in/naqushabneyazee/) or Github, I am fairly active on both.
+Hit me up on [Linkedin](https://www.linkedin.com/in/iamabdulhameed/) or Github, I am fairly active on both.
